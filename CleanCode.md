@@ -21,6 +21,6 @@ have been able to create successful systems from the vague feelings of their cus
 - He says its because of unprofessional way and not spending sufficent time.
 - As a result the excuse given by them is the load and pressure on the is too much.
 - Also have lack or resources to achive that.
-- But author clearly says that 'This may be a bitter pill to swallow'.
+- But author clearly says that 'This may be a bitter pill to  swallow'.
 
 
